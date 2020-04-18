@@ -1,0 +1,2 @@
+# brtkm
+jailbreak ios cydia 
